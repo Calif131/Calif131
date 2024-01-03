@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Calif131
 - 👀 I’m interested in crypto
 - 🌱 I’m currently learning on crypto
-- 💞️ I’m looking to collaborate on crypto
+- 💞️ I’m looking to collaborate on crypto.
 - 📫 How to reach me cosminutzustanciu@gmail.com 
 
 <!---
